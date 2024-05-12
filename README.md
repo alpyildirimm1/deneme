@@ -1,2 +1,2 @@
 # deneme
-değiştirildi bu
+değiştirildi bu fhsjhfjsjfsdfsfsg dsdajkhhfsjkdfjjsdjkfskjddakasdsgit fsfsdffsfsfsdsdfs
